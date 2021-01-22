@@ -12,4 +12,13 @@ Duis arcu massa, scelerisque vitae, consequat in, pretium a, enim. Pellentesque 
 
 Ajout à partir de GITHUB
 
-Nosu allons y arriver Merci!
+Nous allons y arriver Merci!
+
+JE dirais que c'est laborieux masi on va y arriver :)
+
+
+
+
+
+
+YES !!!
