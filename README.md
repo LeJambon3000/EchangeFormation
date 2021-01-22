@@ -28,3 +28,5 @@ Nouveau YES !!!!!
 
 
 CORRECTION HOTFIX REALISEE PAR HOTFIX _BRANCH
+
+ERIC, de Thales est passé par là
