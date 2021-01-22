@@ -23,3 +23,8 @@ JE dirais que c'est laborieux mais on va y arriver ????
 
 YES !!!
 Nouveau YES !!!!!
+
+
+
+
+CORRECTION HOTFIX REALISEE PAR HOTFIX _BRANCH
